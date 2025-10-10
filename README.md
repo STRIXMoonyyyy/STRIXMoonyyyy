@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing, always with my G's
 - 📫 How to reach me : stream Spleener_ everywhere ! 
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: Samo Tutti Antifascisti
+- ⚡ Fun fact: Siamo Tutti Antifascisti
   Free Palestine 4ever 🟥🟩⬜⬛
 <!---
 STRIXMoonyyyy/STRIXMoonyyyy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @STRIXMoonyyyy
+- 👋 Hi, I’m @Spleener_
 - 👀 I’m interested in developement n also in music
 - 🌱 I’m currently learning C++ n backend , but i already know frontend, python n C#
 - 💞️ I’m looking to collaborate on nothing, always with my G's
